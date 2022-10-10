@@ -1,2 +1,2 @@
-# jivjaago
-Jivjaago is the platform for spreading Science of KRSNA
+# JIVJAAGO MEDIA
+Jivjaago media is the platform for spreading Science of KRSNA. 
